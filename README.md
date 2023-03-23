@@ -4,5 +4,5 @@
 - i like to study
 - i like to sleep
 - I like the sun
-- i live Olya
+- i love Olya
 
